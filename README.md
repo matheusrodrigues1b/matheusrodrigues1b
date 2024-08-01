@@ -8,4 +8,5 @@ Estou estudando na [Alura](Https://www.alura.com.br)
 
 Rodrigues.matheus30@escola.pr.gov.br
 
-![]( https://media1.tenor.com/m/SKhwqedtfjoAAAAd/anos-voldigoad.gif )
+![icegif-102](https://github.com/user-attachments/assets/fa65e4dd-2a0f-4148-abeb-34a6e26c7eb3)
+
